@@ -1,6 +1,6 @@
 # xgcloud官网地址
 
-最新地址：[xgcloud.org](https://aff1.xgyes3.cc/#/register?code=Z2pbJiZJ)
+最新地址：[xgcloud.org](https://web.xgcloud.me/#/register?code=Z2pbJiZJ)
 
 ## xgcloud优惠码
 
